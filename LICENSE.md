@@ -1,4 +1,4 @@
-
+automatic Script for grow a garden is the best grow a garden Script, featuring auto-sell and auto-heal. Safe and powerful for all your needs.
 
 
 
